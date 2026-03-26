@@ -169,8 +169,8 @@ Day 3 (Revision)
 
 ## 👨‍💻 Author
 
-**Rasesh Varshney**
-📌 Registration Number: 25BCE10299
+**PRIYAM MANGLA**
+📌 Registration Number: 25BCE10415
 
 ---
 
